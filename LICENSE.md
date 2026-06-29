@@ -1,4 +1,4 @@
-
+professional VyprVPN Service | 24/7-support + camouflage-mode offers the most advanced VyprVPN service, with 24/7-support and camouflage-mode. Ideal for users who value privacy
 
 
 
